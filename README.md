@@ -1,1 +1,1 @@
-Website built using jekyll-now by Barry Clark.
+Original jekyll-now template by Barry Clark.

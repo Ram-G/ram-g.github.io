@@ -8,6 +8,18 @@ I am a software engineer by training and profession. I am a son, a brother, and 
 
 This blog, I expect, will contain in large part my musings on the transient and scintillating beauty of human nature - of our, humans', interactions with each other, and the world. I often in thought-exercises find myself coming back to the constant of human nature as an explanation for phenomena small and big. Perhaps it's to do with my childhood love for Agatha Christie; as Miss Marple very simply puts it - "Human nature is much the same everywhere."
 
+<h2> Follow my adventures: </h2>
+
+I play chess ♟: [https://lichess.org/@/ramg](https://lichess.org/@/ramg)
+
+I click pictures 📷: [https://www.instagram.com/ramgup/](https://www.instagram.com/ramgup/)
+
+I tweet hot takes 🕊: [https://twitter.com/Ramg95](https://twitter.com/Ramg95)
+
+I drive 🏎: [https://www.youtube.com/watch?v=pGC1QweNogY](https://www.youtube.com/watch?v=pGC1QweNogY)
+
+I read 📖: [https://www.goodreads.com/user/show/38777807-ram](https://www.goodreads.com/user/show/38777807-ram)
+
 <h2> Food for thought </h2>
 
 Some of my favorite quotes, in no particular order:
